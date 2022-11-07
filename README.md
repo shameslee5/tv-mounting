@@ -1,1 +1,2 @@
-# tv-mounting
+Do you need an electrician to mount a TV?
+We suggest getting a professional [tv mounting houston](https://ihandyandy.com/houston-tv-mounting/) to mount up your TV. When your TV is mounted on the wall, there are so many variables to remember. Your local electrician will make sure everything is performed to the highest quality level with the right expertise and equipment and will give you the best possible result.
